@@ -1,9 +1,4 @@
-## Hi there!
-남민철의 개인 페이지에 오신 것을 환영합니다!
-이제 9개월 차 새내기입니다!
 
-비록 아직은 아무것도 없지만...
-앞으로 많이 추가될지도?
 
 
 <img src="https://pic.sopili.net/pub/emoji/twitter/2/72x72/1f4dd.png" width=13 height=13> Studying <img src="https://pic.sopili.net/pub/emoji/twitter/2/72x72/1f4dd.png" width=13 height=13> 
